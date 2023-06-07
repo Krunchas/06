@@ -1,0 +1,1 @@
+# Dany je gay
